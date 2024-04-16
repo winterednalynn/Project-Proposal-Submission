@@ -1,7 +1,10 @@
 ✿╗°•.•╔✿════๏⊙๏════✿╗°•.•╔✿════๏⊙๏════✿╗⊙๏════✿╗⊙๏════✿
+
 •	Name: [Your Name]: Edna Lynn Laxa
 •	Year and Qtr: [Year and Quarter]: 2 Year ; 6th Quarter 
 •	Additional Teammate (If working in team): [Teammate's Name]: Solo 
+
+
 ╚✿════๏⊙๏════✿╝•°•.°╚✿════๏⊙๏════✿╝•°•.°╚✿════๏⊙๏════✿✿
 
 Introduction:
